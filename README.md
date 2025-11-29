@@ -12,4 +12,7 @@ WhatsApp:
 +62 8383 8481 461
 
 Tiktok:
-@techkr_risen
+https://www.tiktok.com/@techkr_risen
+
+Steam :
+https://steamcommunity.com/id/risen-x
