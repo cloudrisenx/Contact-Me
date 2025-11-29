@@ -7,3 +7,9 @@ https://www.instagram.com/techkr_risen/
 
 Discord:
 @risenx__
+
+WhatsApp:
++62 8383 8481 461
+
+Tiktok:
+@techkr_risen
