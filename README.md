@@ -9,7 +9,7 @@ Discord:
 @risenx__
 
 WhatsApp:
-+62 8383 8481 461
+wa.me/+6283838481461
 
 Tiktok:
 https://www.tiktok.com/@techkr_risen
